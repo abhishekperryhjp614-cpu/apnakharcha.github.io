@@ -1,1 +1,1 @@
-# apnakharcha.github.io
+google.com, pub-3248938983371863, DIRECT, f08c47fec0942fa0
